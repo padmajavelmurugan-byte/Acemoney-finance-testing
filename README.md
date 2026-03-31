@@ -39,7 +39,3 @@ Key Highlights
 
 By
 Padmaja. V
-
-a👨‍💻 Author
-
-Your Name
